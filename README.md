@@ -1,2 +1,1 @@
-# vast-gen-leaked
-VAST PAID DISCORD TOKEN GEN SOURCE CODE LEAKED
+# [⚡] Leaking source at 50 stars.
